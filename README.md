@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+✨✨✨Please to meet you. My name is Ngan Huynh from Vietnam🇻🇳. I'm a student in pharmacy and interested in coding.
+
+🌱I'm currently learning Web Design, hope we can be friends and learn about it together. I started from the basic of HTML and CSS.
+
+🔍Personal quote: The cognitive limit of humans is about 150 individuals according to Dunbar's number. But you can always be my 151st.
+
+🤗My hobbies: 🎧📚🧸
+
+🤩My dream: ✈🗺🎫
